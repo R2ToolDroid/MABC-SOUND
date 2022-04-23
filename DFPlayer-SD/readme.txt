@@ -1,5 +1,5 @@
 
-Folder 1    Normaler Chat wie auch gut für NEXT
+Folder 1    Normaler Chat wie auch gut für NEXT ...
 
 
 Folder 2    Small Ticks für Interaktion und Quittung 
